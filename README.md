@@ -1,0 +1,1 @@
+Hello, I'm Jason. And I'm a student studying economics. At the same time, I'm very interested in coding and programming. If someone of you can give me some advice on how to become a good programmer, or you just want to contact with me for some reasons, please e-mail me at 930653440@qq.com.
